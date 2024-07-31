@@ -8,7 +8,8 @@ Prof. Me. André Luís Gazoto Niemeyer
 
 -
 
-![](https://media1.tenor.com/m/y3F6aYwlMZkAAAAd/goku-ultra-instinct-acey.gif)
+![](https://media1.tenor.com/m/l_JZxdd_6X4AAAAC/genki-dama-spirit-bomb.gif)
+
 
 
 
