@@ -1,6 +1,6 @@
-## **BOM DIA** 🙀 🪐 👋
+## **BEM VINDO** 👋🤔💻🙀🪐
 
-Meu nome é André Luís Gazoto Niemeyer
+Prof. Me. André Luís Gazoto Niemeyer
 
 - **Estou** estudando _ALURA_
 
